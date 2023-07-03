@@ -1,0 +1,31 @@
+# Staklareva ljubav: bajka o samospoznaji i odrastanju
+ 
+"Staklareva ljubav" je bajka srpske knjiÅ¾evnice Grozdane OlujiÄ koja govori o samospoznaji i odrastanju. Samospoznaja kao sastavni deo odrastanja praÄena je potrebom deteta za ljubavlju, idealizovanom i izmaÅ¡tanom. Kompozicija bajke je prstenasta, po modelu A-B-A, odnosno uvodni i zavrÅ¡ni kompozicioni okvir pripadaju svetu realnosti, dok srediÅ¡nji, medijalni deo sadrÅ¾i fantastiÄne elemente, svojstvene bajci kao knjiÅ¾evnoj vrsti[^1^].
+ 
+## Fabula
+ 
+Protagonista bajke je deÄak, sin staklara, koji kriÅ¡om odlazi u oÄevu radionicu, posmatra njegov rad i Å¾udi da i sam pravi figure od stakla. DeÄak sanjari o devojÄici sliÄnoj sebi i svu svoju ljubav usmerava ka njoj. Osim na staklarski zanat, deÄak je odmalena bio upuÄen i na priÄe starih staklara o Äarobnjaku, koji onome kome se ukaÅ¾e jednom u sto godina, daruje sposobnost da od stakla naÄini sve Å¡to poÅ¾eli. Time se fantastika kao osnovni element bajke nadovezuje na maÅ¡tu i igru, ali i deÄakovu potrebu za prijateljstvom i ljubavlju.
+ 
+**DOWNLOAD ··· [https://t.co/1a9PuKPWfY](https://t.co/1a9PuKPWfY)**
+
+
+ 
+DeÄak jedne noÄi pokuÅ¡ava da od stakla napravi cvet, ali u tome ne uspeva. Pred zoru je zaspao i u snu video kako se iz staklene mase pomalja devojÄica, Svetlooka. Svetlooka je fantastiÄni lik jer postoji samo u deÄakovoj uobrazilji. Niko osim njega ne moÅ¾e da je vidi. Ona ga prati svuda: u Å¡koli, u kuÄi, u snu i na javi, a pomaÅ¾e mu i kada pravi staklene figure u radionici. DeÄakova majka primeÄuje da se u njemu odvija neka Äudnovata promena, kao i da on u oÄima ima neki Äudan sjaj. Ipak, Äak ni ona nije znala Å¡ta se to sa njim zbiva.
+ 
+Grozdana Olujić Staklareva ljubav,  Staklareva ljubav analiza bajke,  Staklareva ljubav tema i poruka,  Staklareva ljubav likovi i osobine,  Staklareva ljubav prepricano po glavama,  Staklareva ljubav audio knjiga,  Staklareva ljubav pdf download,  Staklareva ljubav citati i misli,  Staklareva ljubav kratki sadržaj,  Staklareva ljubav lektira za 5. razred,  Staklareva ljubav interpretacija bajke,  Staklareva ljubav simbolika stakla,  Staklareva ljubav karakterizacija dečaka,  Staklareva ljubav opis Svetlooke,  Staklareva ljubav značenje imena,  Staklareva ljubav vreme i mesto radnje,  Staklareva ljubav fantastični elementi,  Staklareva ljubav odnos dečaka i oca,  Staklareva ljubav uticaj mašte na stvarnost,  Staklareva ljubav razlika između bajke i priče,  Staklareva ljubav primeri stila i jezika,  Staklareva ljubav pitanja za proveru znanja,  Staklareva ljubav ideje za kreativne radove,  Staklareva ljubav video lekcija i prezentacija,  Staklareva ljubav recenzija i ocena knjige,  Grozdana Olujić biografija i dela,  Grozdana Olujić nagrade i priznanja,  Grozdana Olujić značaj za dečju književnost,  Grozdana Olujić uticaji i inspiracije,  Grozdana Olujić intervju i izjave,  Grozdana Olujić zbirka bajki Nebeska reka,  Grozdana Olujić zbirka bajki Sedefna ruža,  Grozdana Olujić zbirka bajki Bajke o princezama,  Grozdana Olujić zbirka bajki Bajke o životinjama,  Grozdana Olujić zbirka bajki Bajke o biljkama,  Grozdana Olujić zbirka bajki Bajke o stvarima,  Grozdana Olujić zbirka bajki Bajke o ljudima,  Grozdana Olujić zbirka bajki Bajke o čarobnjacima,  Grozdana Olujić zbirka bajki Bajke o vili Zlatokosi,  Grozdana Olujić zbirka bajki Bajke o vili Zelenkosi,  Grozdana Olujić roman za decu Zlatna jabuka i devet paunica ,  Grozdana Olujić roman za decu Zvezdani konjanik ,  Grozdana Olujić roman za decu Zlatni ključić ,  Grozdana Olujić roman za decu Zlatna ogrlica ,  Grozdana Olujić roman za decu Zlatni prsten ,  Grozdana Olujić roman za decu Zlatna ogrlica ,  Grozdana Olujić roman za decu Zlatni lančić ,  Grozdana Olujić roman za decu Zlatna kruna ,  Grozdana Olujić roman za decu Zlatna haljina ,  Grozdana Olujić roman za decu Zlatna harfa
+ 
+Svetlooka je rekla deÄaku da Äe biti uz njega i voleti ga sve dok je on dobar i paÅ¾ljiv prema njoj, dok je ne udari ili je ne gurne: "Ljubav je krhkija od stakla. Za nju je potrebno mnogo strpljenja, mnogo neÅ¾nosti..." Ipak, jedared Äe deÄak zaboraviti na njenu opomenu i gurnuti je kada ga naljuti njeno zadirkivanje. U tom Äasu Svetlooka se razbila u stakleni prah i Äarolija je nestala. Uzalud ju je deÄak dozivao i dugo tragao za njom. Vreme je prolazilo i deÄak je sve manje mislio o njoj.
+ 
+## Tema i poruka
+ 
+Tema bajke je ljubav kao najveÄa vrednost koja se mora negovati i Äuvati. Poruka bajke je da ljubav nije samo le
+
+## Biografija autora
+ 
+Grozdana OlujiÄ je roÄena 30. avgusta 1934. godine u Erdeviku. Gimnaziju je uÄila u BeÄeju. Diplomirala je i magistrirala na Grupi za engleski jezik i knjiÅ¾evnost na Filozofskom fakultetu Univerziteta u Beogradu. KnjiÅ¾evnim radom poÄela je da se bavi veoma rano, joÅ¡ u srednjoj Å¡koli. Svoja dela objavljivala je u listovima StraÅ¾ilovo i Mlada kultura. Dobila je nagradu za najbolju priÄu na konkursu koji je organizovala Borba 1953. godine[^2^].
+ 
+Kao romansijer, objavila je Å¡est romana: Izlet u nebo (1957), Glasam za ljubav (1962), Ne budi zaspale pse (1964), Divlje seme (1967), Glasovi u vetru (2009) i PreÅ¾iveti do sutra (2017). Sabrani romani u Å¡est knjiga objavljeni su 2018. godine u izdanju Srpske knjiÅ¾evne zadruge i Partenona. TakoÄe, kao bajkopisac, objavila je veliki broj bajki i zbirki bajki[^1^].
+ 
+Njena dela doÅ¾ivela su brojna izdanja u zemlji, a prevedena su na Äak 36 svetskih jezika[^1^]. Dobitnica je mnogobrojnih knjiÅ¾evnih nagrada i priznanja, kako domaÄih, tako i stranih â Povelja za Å¾ivotno delo UdruÅ¾enja knjiÅ¾evnika Srbije (2004), NIN-ova nagrada za najbolji roman (2009), nagrada Politikinog zabavnika (1980), nagrada Mlado pokolenje (1980. i 1984), tri nagrade Zmajevih deÄjih igara, povelja Zmajevih deÄjih igara (2001), nagrada Narodne prosvete, nagrada Telegrama, nagrada Zlatni leptir i Stara maslina (2002), nagrada Bora StankoviÄ (2018), nagrada za najbolju svetsku priÄu i nagrada za najbolju modernu bajku sveta (1994)[^2^]. Dodeljen joj je viteÅ¡ki orden Dannebrog[^3^], 31. avgusta 1977. Bila je poÄasni Älan Univerziteta u Ajovi (SAD) od 1970. i poÄasni graÄanin grada Osla[^2^]. Preminula je 16. marta 2019. godine u Beogradu.
+ 8cf37b1e13
+ 
